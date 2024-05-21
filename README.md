@@ -1,1 +1,1 @@
-[![](IMG_1663.JPG)](https://blog.yonson.dev/)
+[![](nogood.webp)](https://blog.yonson.dev/)
